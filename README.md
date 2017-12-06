@@ -1,2 +1,2 @@
 # trade_bot
-idk
+idk wtf is happen in ly life
